@@ -1,1 +1,1 @@
-# dichaapr.github.io
+# dicha.github
